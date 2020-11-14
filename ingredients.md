@@ -1,0 +1,15 @@
+Homemade Brownie Recipe Ingredients:
+   1/2 cup of butter
+   1 cup white sugar
+   2 eggs
+   1 teaspoon vinilla exract
+   1/3 cup unsweetened cocoa powder
+   1/2 cup all-purpose flour
+   1/4 teaspoon salt
+   1/4 teaspoon backing powder
+Frosting
+   3 tablespoons butter, softened 
+   3 tablespoons unsweetened cocoa powder
+   1 tablespoon honey
+   1 teaspoon vanilla extract
+   1 cup confectioners' sugar
